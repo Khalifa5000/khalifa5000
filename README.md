@@ -17,6 +17,8 @@ About me:
 •	📁 You can see a bit of my hard work in my Portfolio
 https://khalifa5000.github.io/My-portfolio/
 
+• My linkedIn profile https://www.linkedin.com/in/mohamed-khalifa-b5375623a/
+
 •	📫 You can contact me at m.khalifa5000@gmail.com
 
 
